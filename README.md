@@ -1,2 +1,2 @@
 # commet
-aweasome effect 
+aweasome effect 💫✨🎇🎆
